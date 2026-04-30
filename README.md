@@ -144,7 +144,7 @@ doctalk/
 
 **Phani Harika Soma**
 - GitHub: [@PhaniHarika](https://github.com/PhaniHarika)
-- LinkedIn: [phaniharikasoma](https://www.linkedin.com/in/phaniharikasoma)
+- LinkedIn: [phaniharikasoma](https://www.linkedin.com/in/phaniharika-soma-551a32326/)
 
 ---
 
